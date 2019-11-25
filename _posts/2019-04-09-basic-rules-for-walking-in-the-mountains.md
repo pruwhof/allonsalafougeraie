@@ -51,7 +51,7 @@ We hopen jullie weer te zien **_en France_**.
 
 **Peter en Mary**
 
-**![](https://lh6.googleusercontent.com/m8duM3thMf0b9S6FWEdKprR8BkGiFDjDQ5A2S3at6NybZX3C2JxXJn99Yl5G6cbwouCbye6169sjzT__26DBSUbLZTMQbbVv_qoFUhPhs4BtVzu2WstDtGN_JQzMqgmjT1Vr0V6v =364x174)**
+![](/images/logo la fougeraie.jpg)
 
 Folgoux 43160 Malvières, France
 
