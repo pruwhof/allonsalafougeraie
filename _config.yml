@@ -4,10 +4,10 @@ baseurl: "/"
 permalink: "/:title/"
 palette: yellow
 header:
-  title: Allons!
-  tagline: a La Fougeraie
-  logo_img: "/images/logo la fougeraie.jpg"
-  bg_img: ''
+  title: Allons a la Fougeraie
+  tagline: ''
+  logo_img: ''
+  bg_img: "/images/IMG_0152.jpeg"
   has_nav: true
   has_social: true
 footer:
