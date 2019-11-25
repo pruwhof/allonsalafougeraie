@@ -7,7 +7,7 @@ header:
   title: Allons!
   tagline: a La Fougeraie
   logo_img: "/images/logo la fougeraie.jpg"
-  bg_img: "/images/IMG_0152.jpeg"
+  bg_img: ''
   has_nav: true
   has_social: true
 footer:
