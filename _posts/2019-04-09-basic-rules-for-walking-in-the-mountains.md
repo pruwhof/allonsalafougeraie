@@ -6,7 +6,7 @@ content_img_path: "/images/IMG_0152.jpeg"
 excerpt: 'Onze plannen en verhuizing '
 layout: post
 subtitle: ''
-hide_header: false
+hide_header: true
 
 ---
 Lieve vrienden en familie,
