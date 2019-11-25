@@ -43,7 +43,6 @@ fields:
   config:
     required: true
 pages:
-- _posts/2016-08-22-working-from-home.md
 - _posts/2019-03-24-nature.md
 - _posts/2018-01-23-moving-to-new-york.md
 - _posts/2018-01-09-fragments-of-iceland.md
