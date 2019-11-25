@@ -1,37 +1,66 @@
 ---
-title: Basic Rules For Walking In The Mountains
-date: '2019-04-09'
+title: Mary en Peter verhuizen naar Frankrijk!
+date: 2019-11-09 00:00:00 +0100
 thumb_img_path: images/1.jpg
 content_img_path: images/1.jpg
-excerpt: >-
-  Hiking is sometimes referred to as such. This specifically refers to difficult
-  walking through dense forest, undergrowth, or bushes, where forward progress
-  requires pushing vegetation aside.
+excerpt: Hiking is sometimes referred to as such. This specifically refers to difficult
+  walking through dense forest, undergrowth, or bushes, where forward progress requires
+  pushing vegetation aside.
 layout: post
+subtitle: ''
+hide_header: false
+
 ---
+Lieve vrienden en familie,
 
-![Hiking](/images/2.jpg)
+Wij vertrekken in december naar Frankrijk! We laten alles achter wat ons bekend is in Nederland, dus ook jullie; onze vrienden en familie.
 
-In the United States, Canada, the Republic of Ireland, and United Kingdom, **hiking** refers to walking outdoors on a trail, or off trail, for recreational purposes. A day hike refers to a hike that can be completed in a single day. However, in the United Kingdom, the word walking is also used, as well as rambling, while walking in mountainous areas is called hillwalking. In Northern England, Including the Lake District and Yorkshire Dales, fellwalking describes hill or mountain walks, as fell is the common word for both features there.
+We zullen in Malvières, Auvergne in een kasteelboerderij gaan wonen. Deze boerderij was vroeger in dienst van het kasteeltje uit 1346 als koeienboerderij; de originele ruiven zijn nog aanwezig. Nog maar sinds 12 jaar is het een woonboerderij met chambres d’hotes (bed & breakfast). In 2016 is de naastgelegen gite erbij gekomen, deze wordt verhuurd als vakantiehuis voor 6 personen.
 
-Hiking can sometimes involves bushwhacking and hiking is sometimes referred to as such. This specifically refers to difficult walking through dense forest, undergrowth, or bushes, where forward progress requires pushing vegetation aside. In extreme cases of bushwhacking, where the vegetation is so dense that human passage is impeded, a machete is used to clear a pathway. The Australian term bushwalking refers to both on and off-trail hiking. Common terms for hiking used by [New Zealanders](https://en.wikipedia.org/wiki/New_Zealand) are tramping (particularly for overnight and longer trips), walking or bushwalking. Trekking is the preferred word used to describe multi-day hiking in the mountainous regions of India, Pakistan, Nepal, North America, South America, Iran and in the highlands of East Africa. Hiking a long-distance trail from end-to-end is also referred to as trekking and as thru-hiking in some places. In North America, multi-day hikes, usually with camping, are referred to as [backpacking](https://en.wikipedia.org/wiki/Backpacking_(wilderness)).
+**Kortom; wij hebben een chambres d'hôtes in een kasteelboerderij gekocht.**
 
-## Long Distance Hiking
+![](https://lh3.googleusercontent.com/H7eXI7rZICL8qDBNnbPFRh3MGcSaOlfaisjsA0t2vmwMkG3fXSYhGF9JVOpjOhvpJ5ioSawSplK9OhoGJMSeT3cHyKOh0yRsNDZtxfG8OiKmeAWU48cEVB7PU1UHm0CUWVY2tzW_ =491x212)
 
-Frequently nowadays long distance hikes (walking tours) are undertaken along long distance paths, including the National Trails in England and Wales, the National Trail System in the USA and The Grande Randonnée (France), Grote Routepaden, or Lange-afstand-wandelpaden (Holland), Grande Rota (Portugal), Gran Recorrido (Spain) is a network of long-distance footpaths in Europe, mostly in France, Belgium, the Netherlands and Spain. There are extensive networks in other European countries of long distance trails, as well as in Canada, Australia, New Zealand, Nepal, and to a lesser extent other Asiatic countries, like Turkey, Israel, and Jordan. In the Alps of Austria, Slovenia, Switzerland, Germany, France, and Italy walking tours are often made from 'hut-to-hut', using an extensive system of mountain huts.
+[Klik hier voor een foto-impressie](https://photos.google.com/share/AF1QipOws25LOiD4F4eK40ASygY1gjpNBBSTI2PauVVa55ol2Xee-ht8OFvt-hixFXtYoQ/photo/AF1QipNbz-FgGh21HS3cLHfZgAM8DDcFsiT8QzG25ECp?key=NTl1QVRkREVxM2N6NjdRd01yWXotbGNCc2xWX2VB)
 
-In the late 20th-century there has been a proliferation of official and unofficial long distance routes, which mean that hikers now are more likely to refer to using a long distance way (Britain), trail (USA), The Grande Randonnée (France), etc., than setting out on a walking tour. Early examples of long distance paths, include the Appalachian Trail in the USA and the Pennine Way in Britain. Pilgrimage routes are now treated, by some walkers, as long distance routes, and the route taken by the British National Trail the North Downs Way closely follows that of the Pilgrims' Way to Canterbury. Hiking times can be estimated by Naismith's rule or Tobler's hiking function.
+Website: [https://www.chambresdhoteslafougeraie.nl/](https://www.chambresdhoteslafougeraie.nl/ "https://www.chambresdhoteslafougeraie.nl/")
 
-## Equipment
+**_Verhuizing_**
 
-The equipment required for hiking depends on the length of the hike, but day hikers generally carry at least water, food, a map, and rain-proof gear. Hikers usually wear sturdy hiking boots for mountain walking and backpacking, as protection from the rough terrain, as well as providing increased stability. The Mountaineers club recommends a list of "Ten Essentials" equipment for hiking, including a compass, sunglasses, sunscreen, a flashlight, a first aid kit, a fire starter, and a knife. Other groups recommend items such as hat, gloves, insect repellent, and an emergency blanket. A GPS navigation device can also be helpful and route cards may be used as a guide.
+De komende tijd zullen we vooral bezig zijn met afscheid nemen van Nederland en ons leven in Frankrijk beginnen.
 
-> Returning home is the most difficult part of long-distance hiking; You have grown outside the puzzle and your piece no longer fits. ― Cindy Ross
+De grote verhuizing is op 11 december, nadat het huis in Malvières aan ons is overgedragen op 30 november.
 
-Proponents of ultralight backpacking argue that long lists of required items for multi-day hikes increases pack weight, and hence fatigue and the chance of injury. Instead, they recommend reducing pack weight, in order to make hiking long distances easier. Even the use of hiking boots on long-distances hikes is controversial among ultralight hikers, because of their weight.
+We hebben er veel zin in, maar vinden het ook enorm spannend!
 
-## Environmental Impact
+**_Een paar van onze plannen:_**
 
-Natural environments are often fragile, and may be accidentally damaged, especially when a large number of hikers are involved. For example, years of gathering wood can strip an alpine area of valuable nutrients. and some species, such as martens or bighorn sheep, are very sensitive to the presence of humans, especially around mating season. Generally, protected areas such as parks have regulations in place to protect the environment, so as to minimize such impact. Such regulations include banning wood fires, restricting camping to established camp sites, disposing or packing out faecal matter, and imposing a quota on the number of hikers. Many hikers espouse the philosophy of Leave No Trace, following strict practices on dealing with food waste, food packaging, and other impact on the environment.
+_De grote zaal isoleren en een grote keuken maken. Voor ons eigen woongedeelte komt er een tweede slaapkamer. In de kamers en zaal wordt verwarming aangebracht._
 
-Human waste is often a major source of environmental impact from hiking, and can contaminate the watershed and make other hikers ill. 'Catholes' dug 10 to 25 cm (4 to 10 inches) deep, depending on local soil composition and covered after use, at least 60 m (200 feet) away from water sources and trails, are recommended to reduce the risk of bacterial contamination. [Source](https://en.wikipedia.org/wiki/Hiking)
+_De gite geschikt maken voor 8 personen, door op de tweede verdieping de slaapkamer en badkamer af te maken._
+
+_De Brocante in de koeienstal wordt heringericht._
+
+_Onze veestapel van twee katten wordt mogelijk uitgebreid met kippen en een hondje. Hangbuikzwijntje?_
+
+_Als het haalbaar is maken we een minicamping of zetten wat chalets neer._
+
+_Buiten het seizoen Klusweken met onze vrienden en familie, waarin we een aantal uurtjes per dag wat grote of kleinere klusjes doen, samen eten, wandelen, luieren._
+
+_De huidige workshop / masterclass weken Landschap Schilderen en - Fotografie uitbreiden met motor en yoga weken._
+
+We hopen jullie weer te zien **_en France_**.
+
+**Peter en Mary**
+
+**![](https://lh6.googleusercontent.com/m8duM3thMf0b9S6FWEdKprR8BkGiFDjDQ5A2S3at6NybZX3C2JxXJn99Yl5G6cbwouCbye6169sjzT__26DBSUbLZTMQbbVv_qoFUhPhs4BtVzu2WstDtGN_JQzMqgmjT1Vr0V6v =364x174)**
+
+Folgoux 43160 Malvières, France
+
+\+33 (0) 6 85 78 25 80
+
+\+33 (0) 4 71 09 07 58
+
+[info@chambresdhoteslafougeraie.nl](mailto:info@chambresdhoteslafougeraie.nl)
+
+[www.chambresdhoteslafougeraie.nl](http://www.chambresdhoteslafougeraie.nl)
