@@ -1,11 +1,9 @@
 ---
 title: Mary en Peter verhuizen naar Frankrijk!
 date: 2019-11-09 00:00:00 +0100
-thumb_img_path: images/1.jpg
-content_img_path: images/1.jpg
-excerpt: Hiking is sometimes referred to as such. This specifically refers to difficult
-  walking through dense forest, undergrowth, or bushes, where forward progress requires
-  pushing vegetation aside.
+thumb_img_path: "/images/IMG_0152.jpeg"
+content_img_path: "/images/IMG_0152.jpeg"
+excerpt: 'Onze plannen en verhuizing '
 layout: post
 subtitle: ''
 hide_header: false
@@ -17,7 +15,7 @@ Wij vertrekken in december naar Frankrijk! We laten alles achter wat ons bekend 
 
 We zullen in Malvières, Auvergne in een kasteelboerderij gaan wonen. Deze boerderij was vroeger in dienst van het kasteeltje uit 1346 als koeienboerderij; de originele ruiven zijn nog aanwezig. Nog maar sinds 12 jaar is het een woonboerderij met chambres d’hotes (bed & breakfast). In 2016 is de naastgelegen gite erbij gekomen, deze wordt verhuurd als vakantiehuis voor 6 personen.
 
-**Kortom; wij hebben een chambres d'hôtes in een kasteelboerderij gekocht.**
+**Kortom; wij hebben een chambres d'hôtes in een kasteelboerderij gekocht.![](/images/IMG_0152.jpeg)**
 
 ![](https://lh3.googleusercontent.com/H7eXI7rZICL8qDBNnbPFRh3MGcSaOlfaisjsA0t2vmwMkG3fXSYhGF9JVOpjOhvpJ5ioSawSplK9OhoGJMSeT3cHyKOh0yRsNDZtxfG8OiKmeAWU48cEVB7PU1UHm0CUWVY2tzW_ =491x212)
 
