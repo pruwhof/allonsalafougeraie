@@ -1,7 +1,7 @@
 ---
 title: Over ons / About us
 subtitle: Over onze reis / About our journey
-img_path: "/images/FB foto.jpg"
+img_path: "/images/20170223_125956(1) Peter en Mary India.jpg"
 layout: page
 menu:
   main:
