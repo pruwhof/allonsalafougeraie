@@ -58,20 +58,19 @@ We hopen jullie weer te zien **_en France_**.
 Dear Family, friends and contacts,
 
 In December we move to France. We are leaving everything, including you...  
-We're going to live in a former castle farm in the Auvergne, which now is a Bed & Breakfast and holiday house.  
-  
-**So.. we've bought a B&B!  
-**You must be curious now, so have a look at [our website](ttps://bedbreakfastlafougeraie.co.uk "La Fougeraie")!  
+We're going to live in a former castle farm in the Auvergne, which now is a Bed & Breakfast and holiday house.
+
+**So.. we've bought a B&B!**  
+You must be curious now, so have a look at [our website](ttps://bedbreakfastlafougeraie.co.uk "La Fougeraie")!  
 Want to see some photo's? [Click here](https://photos.google.com/share/AF1QipOws25LOiD4F4eK40ASygY1gjpNBBSTI2PauVVa55ol2Xee-ht8OFvt-hixFXtYoQ/photo/AF1QipNbz-FgGh21HS3cLHfZgAM8DDcFsiT8QzG25ECp?key=NTl1QVRkREVxM2N6NjdRd01yWXotbGNCc2xWX2VB "Photos").
 
-**Our plans  
-**We're going to insulate the big hall and add heating; we will build a new kitchen.  
+**Our plans**  
+We're going to insulate the big hall and add heating; we will build a new kitchen.  
 We plan to extend the holiday house's capacity to 8 persons.  
 In May and September we organize a Masterclass Photography in cooperation with a Dutch photographer, in June we organize a Painting workshop in cooperation with a Dutch artist/teacher. We plan to add other activities like yoga and motorcycling.
 
 ***
 
-  
 ![](/images/logo la fougeraie.jpg)
 
 Folgoux 43160 Malvières, France  
