@@ -15,9 +15,9 @@ Wij vertrekken in december naar Frankrijk! We laten alles achter wat ons bekend 
 
 We zullen in Malvières, Auvergne in een kasteelboerderij gaan wonen. Deze boerderij was vroeger in dienst van het kasteeltje uit 1346 als koeienboerderij; de originele ruiven zijn nog aanwezig. Nog maar sinds 12 jaar is het een woonboerderij met chambres d’hotes (bed & breakfast). In 2016 is de naastgelegen gite erbij gekomen, deze wordt verhuurd als vakantiehuis voor 6 personen.
 
-**Kortom; wij hebben een chambres d'hôtes in een kasteelboerderij gekocht.![](/images/IMG_0152.jpeg)**
+**Kortom; wij hebben een chambres d'hôtes in een kasteelboerderij gekocht.**
 
-![](https://lh3.googleusercontent.com/H7eXI7rZICL8qDBNnbPFRh3MGcSaOlfaisjsA0t2vmwMkG3fXSYhGF9JVOpjOhvpJ5ioSawSplK9OhoGJMSeT3cHyKOh0yRsNDZtxfG8OiKmeAWU48cEVB7PU1UHm0CUWVY2tzW_ =491x212)
+![](/images/IMG_0152-1.jpeg)
 
 [Klik hier voor een foto-impressie](https://photos.google.com/share/AF1QipOws25LOiD4F4eK40ASygY1gjpNBBSTI2PauVVa55ol2Xee-ht8OFvt-hixFXtYoQ/photo/AF1QipNbz-FgGh21HS3cLHfZgAM8DDcFsiT8QzG25ECp?key=NTl1QVRkREVxM2N6NjdRd01yWXotbGNCc2xWX2VB)
 
