@@ -1,6 +1,6 @@
 ---
 title: Mary en Peter verhuizen naar Frankrijk! / Moving to France!
-date: 2019-11-26 00:00:00 +0100
+date: 2019-11-08 00:00:00 +0100
 thumb_img_path: "/images/IMG_0152.jpeg"
 content_img_path: "/images/IMG_0152.jpeg"
 excerpt: 'Onze plannen en verhuizing '
