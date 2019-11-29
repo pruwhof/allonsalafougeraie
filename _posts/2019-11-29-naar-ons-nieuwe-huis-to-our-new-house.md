@@ -17,9 +17,11 @@ Vandaag aangekomen bij La Fougeraie en met de verkopers Rob en Corine een laatst
 
 De 40 jaar oude Landrover hoort bij La Fougeraie. Om hout te sprokkelen in het bos.
 
+![](/images/Lumii_20191129_132356_1299434286.org-1.jpg)
+
 ***
 
-### Goodbye and departure 
+### Goodbye and departure
 
 We've had a lot of goodbye moments during last weeks. We had dinner, lunch and drinks with family and friends. But we won't miss each other for long, since everyone is going to visit us in France!
 
