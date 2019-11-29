@@ -3,7 +3,7 @@ layout: post
 title: Naar ons nieuwe huis / to our new house
 subtitle: ''
 date: 2019-11-29 00:00:00 +0100
-thumb_img_path: "/images/IMG_0380.JPG"
+thumb_img_path: "/images/Lumii_20191129_132356_1299434286.org-1.jpg"
 content_img_path: ''
 excerpt: ''
 hide_header: false
@@ -17,7 +17,7 @@ Vandaag aangekomen bij La Fougeraie en met de verkopers Rob en Corine een laatst
 
 De 40 jaar oude Landrover hoort bij La Fougeraie. Om hout te sprokkelen in het bos.
 
-![](/images/Lumii_20191129_132356_1299434286.org-1.jpg)
+![](/images/IMG_0380.JPG)
 
 ***
 
