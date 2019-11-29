@@ -43,5 +43,6 @@ fields:
   config:
     required: true
 pages:
+- _posts/naar-ons-nieuwe-huis-to-our-new-house.md
 - _posts/2019-04-09-basic-rules-for-walking-in-the-mountains.md
 - _posts/2019-11-25-inpakken.md
