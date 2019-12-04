@@ -3,13 +3,15 @@ layout: post
 title: Onze eerste dagen op La Fougeraie / our first days
 subtitle: ''
 date: 2019-12-04 00:00:00 +0100
-thumb_img_path: "/images/IMG-20191203-WA0000.jpeg"
-content_img_path: ''
+thumb_img_path: "/images/IMG-20191203-WA0006.jpeg"
+content_img_path: "/images/IMG-20191203-WA0000.jpeg"
 excerpt: ''
 hide_header: false
 
 ---
-Hectische eerste dagen waren het.
+(English below)
+
+Hectische eerste dagen waren het!
 
 Vrijdagavond werden we verwacht bij een oude Priorij in de buurt van Ambert. We hebben daar gedineerd in een grote zaal waar nog twee andere gasten aanwezig waren. Zaterdagochtend om zeven uur de wekker; vandaag is de grote dag! We krijgen de sleutels van ons huis. Deze werden vrijdag aan de makelaar meegeven in een wit plastic tasje...
 
