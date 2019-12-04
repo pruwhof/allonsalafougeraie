@@ -17,6 +17,8 @@ Vrijdagavond werden we verwacht bij een oude Priorij in de buurt van Ambert. We 
 
 Snel ontbijten, onze spullen pakken en met een knoop in onze buik op weg naar de notaris in Ambert. Na alle documenten nogmaals doorgenomen te hebben en heel veel pagina's paraferen of voorzien van onze  handtekeningen sprak de notaris uit; Bienvenue en France! We werden gefeliciteerd en we kregen van de makelaar de sleutels.
 
+![](/images/IMG_0389.jpeg)
+
 Om 10.15 uur konden we vertrekken en zijn naar ons nieuwe huis gegaan; wouw, we kunnen overal naar binnen. Is dit allemaal van ons?
 
 Gelukkig is er een compleet ingerichte gite waar we voorlopig kunnen wonen. We hebben onze auto uitgeladen die voornamelijk was volgeladen met gereedschap en kluskleding en zijn boodschappen gaan doen en naar de Brico voor petroleum en muurverf. Zondag na een paar uurtjes klussen, kregen we onze eerste visite om gevulde speculaas te eten en samen champagne te drinken. Nu mag het dan echt na al die maanden van voorbereiding en spanning!!
