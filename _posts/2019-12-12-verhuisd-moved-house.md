@@ -11,11 +11,11 @@ hide_header: false
 ---
 (English below)
 
-Dit was onze laatste week in Nederland. Alles de laatste keer in Nederland, eten maken, fietsen naar de winkel met vrienden koffie drinken, afscheid nemen van de buren. Verder ook het eeuwige inpakken van onze spullen, samen met familie lastige verhuisklusjes gedaan zoals meubels demonteren en laatste dingen inpakken. Laatste dag op kantoor en afscheid van collega's. Afscheid nemen van alles en iedereen is wel heel erg moeilijk....
+Dit was onze laatste week in Nederland. Alles de laatste keer: eten maken, fietsen naar de winkel, met vrienden koffie drinken, afscheid nemen van de buren. Verder natuurlijk het eeuwige inpakken van onze spullen, samen met familie hebben we zondag de lastige verhuisklusjes gedaan zoals meubels demonteren en tuinspullen goed inpakken. Laatste dag op kantoor en afscheid van collega's. Afscheid nemen van alles en iedereen is wel heel erg moeilijk....!
 
 ![](/images/IMG_0442.jpeg)
 
-Gister om 8.00 uur kwam de verhuiswagen en zijn al onze spullen ingeladen door de mannen van Kuiper, ook mijn motor! 50 kuub, het paste maar net :-)
+Gister om 8.00 uur kwam de verhuiswagen en zijn al onze spullen ingeladen door de mannen van Kuiper, ook de motor! 50 kuub, het paste maar net :-)
 
 ![](/images/IMG_0451.jpeg)
 
