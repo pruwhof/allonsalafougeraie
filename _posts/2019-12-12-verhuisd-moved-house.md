@@ -2,7 +2,7 @@
 layout: post
 title: Verhuisd! - Moved house!
 subtitle: ''
-date: 2019-12-13 00:00:00 +0100
+date: 2019-12-13 01:00:00 +0100
 thumb_img_path: "/images/2cd4176e-674e-4a27-8e32-5036c8c6c679.jpeg"
 content_img_path: "/images/IMG_0451.jpeg"
 excerpt: ''
