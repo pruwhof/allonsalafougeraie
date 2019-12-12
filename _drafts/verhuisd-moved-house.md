@@ -19,7 +19,7 @@ Gister om 8.00 uur kwam de verhuiswagen en zijn al onze spullen ingeladen door d
 
 Vanochtend vroeg zijn we zelf vertrokken met Zwieber en Maus, onze katten. Zij hadden het ook zwaar met hun opsluiting in een kamertje en 12 uur lang in een bench in de auto. Vanavond om half negen kwamen we aan in Folgoux met volle maan en natte sneeuw de laatste 75 km.
 
-![](/images/C0DA7267-82F8-45CC-BF49-FE9B7E39917F.jpeg)
+![](/images/4cee2d46-239a-4f16-811b-ba35ad6d51d3.jpeg)
 
 Nu uitrusten bij het houtvuur!
 
