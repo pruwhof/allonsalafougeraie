@@ -9,6 +9,8 @@ excerpt: ''
 hide_header: false
 
 ---
+(English below)
+
 Gisteren zijn onze meubels en heel veel dozen gebracht! De woonkamer was net op tijd klaar, nieuw plafond en een verfje op de muren.
 
 Chauffeur Ton van Kuiper en drie Franse verhuizers die samenin een busje kwamen, hebben alles en naar de grote zaal, woonkamer en naar de stal gebracht. Uitladen ging sneller dan inladen, de Franse mannen wilden voor de lunch klaar zijn natuurlijk!
