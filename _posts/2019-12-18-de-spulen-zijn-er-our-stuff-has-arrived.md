@@ -20,3 +20,13 @@ Chauffeur Ton van Kuiper en drie Franse verhuizers die samenin een busje kwamen,
 De meubels staan inmiddels op hun plaats. Nu onze eigen Jotul houtkachel nog aansluiten. En veel dozen uitpakken... maar dat heeft geen haast. We hebben tenslotte nog een flinke verbouwing binnenkort.
 
 Nu alle spullen hier zijn, zijn we echt 'geland' in Frankrijk!
+
+***
+
+Yesterday the house movers have delivered all our furniture and boxes. One driver from the Dutch company and 3 French movers. Everything unloaded at 1:30 PM, so they were just in time for French lunch.
+
+We also finished our work in the living room just in tme: a new ceiling and all walls repainted. Just a finishing touch to do. And connect our own Jotul wood stove.
+
+All living room furniture is in place now, just some boxes to unpack.... 
+
+Next will be rebuilding works in our large meeting room, adding a new kitchen.
