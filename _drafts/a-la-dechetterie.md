@@ -11,17 +11,23 @@ hide_header: false
 ---
 (English below)
 
-...dan ligt er zeker heel veel oude troep in. Bij ons een stal vol aardewerk, glazen, potten, pannen, lampen, kapotte stoelen, beschimmelde kastjes, een kinderwagen, een po-stoel, een defecte koelkast, een auto-hoedenplank, enzovoorts. 
+...dan ligt er veel oude troep in. De stal had een bijzondere verzameling aardewerk, glazen, potten, tijdschriften uit 1955, pannen, lampen, kapotte stoelen, beschimmelde kastjes, een kinderwagen, een po-stoel, een verroeste prullenbak, een defecte koelkast, een auto-hoedenplank, een papagaaikooi compleet met de uitwerpselen, enzovoorts. Ook de vliering boven het huis had bijzondere voorwerpen die mee konden naar de afvoer...
 
 ![](/images/e0313eae-4d24-48a0-9045-858f791a4b35.jpeg)
 
-Gelukkig was onze familie er met kerst en konden we met 4 auto's drie keer naar de dechetterie (het afvalstation) in La Chaise Dieu rijden. Dat ruimt op!
+In het vorige weekend kwam familie om onze nieuwe stek te bewonderen en samen te genieten van de plek en Kerst. Om het aangename met het nuttige te combineren, konden we vrijdag met 4 auto's drie keer naar de dechetterie (het afvalstation) in La Chaise Dieu rijden. Wat ruimt dat op!
 
-![](/images/d70de6d5-98a1-4ee2-b808-14f5892cf916.jpeg) 
+![](/images/d70de6d5-98a1-4ee2-b808-14f5892cf916.jpeg)
 
-Met kerst was het prachtig weer voor een wandeling in de omgeving en natuurlijk hebben we lekker gegeten en van de wijn genoten met de familie.
+Met Kerst was het prachtig weer voor een wandeling in de omgeving en natuurlijk hebben we samen gekookt en lekker gegeten en van wijn en velen ook van kaas genoten met de familie. (Peter houdt NIET van kaas). 
 
 ![](/images/IMG_0517-1.jpeg)
+
+![](/images/9d30e825-5ee8-4c83-8d28-6617a8b2d9f7.jpeg)
+
+En vandaag nog meer Nederlands-Frans bezoek, met champagne in de zon!
+
+![](/images/IMG_0532.jpeg)
 
 ***
 
@@ -30,3 +36,5 @@ If you buy a house in France, you'll buy lots of junk with it. In our stable and
 Luckily our family who visited us for Christmas helped us to get everything to the recycling station in La Chaise Dieu... driving 3 times with 4 cars full of junk!
 
 Enjoying beautiful weather at Christmas we explored the surroundings with our family. Of course we also had great dinners with nice French wines.
+
+Today we had Champaign in the sun with Dutch-French visiting firends!
