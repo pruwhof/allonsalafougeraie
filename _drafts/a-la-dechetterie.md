@@ -15,7 +15,9 @@ hide_header: false
 
 ![](/images/e0313eae-4d24-48a0-9045-858f791a4b35.jpeg)
 
-In het vorige weekend kwam familie om onze nieuwe stek te bewonderen en samen te genieten van de plek en Kerst. Om het aangename met het nuttige te combineren, konden we vrijdag met 4 auto's drie keer naar de dechetterie (het afvalstation) in La Chaise Dieu rijden. Wat ruimt dat op!
+Afgelopen maandag kwam de eerste familie om te zien waar we zijn gaan wonen en samen Kerst te vieren. We hebben met zeven mensen en onze twee katten in onze (6persoons)gite doorgebracht... 
+
+Om het aangename met het nuttige te combineren, konden we vrijdag met 4 auto's drie keer naar de dechetterie (het afvalstation) in La Chaise Dieu rijden. Wat ruimt dat op!
 
 ![](/images/d70de6d5-98a1-4ee2-b808-14f5892cf916.jpeg)
 
