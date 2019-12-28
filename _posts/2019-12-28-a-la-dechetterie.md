@@ -2,7 +2,7 @@
 layout: post
 title: A la dechetterie
 subtitle: 'Als je een Frans huis koopt... '
-date: 2019-12-28 00:00:00 +0100
+date: 2019-12-28 20:42:57 +0100
 thumb_img_path: "/images/2c95f075-0d0c-4d15-a83b-e8203193bc0e.jpeg"
 content_img_path: "/images/59ce5d7e-e016-4a32-bce9-42a5e1fb5ff1.jpeg"
 excerpt: Na heel wat ritjes naar het afvalstation hebben we ruimte in onze stal.
