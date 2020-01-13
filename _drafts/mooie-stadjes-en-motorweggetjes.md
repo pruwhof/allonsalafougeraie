@@ -21,8 +21,6 @@ En wat een prachtige kronkel-bergweggetjes, perfect voor de motor! En bijna geen
 
 De klussen gaan ook door. De stal verder opgeruimd en een beetje ingericht. En het eerste stukje isolatie aangebracht.
 
-![](/images/IMG_0561.jpeg)
-
 En dan de Franse bureaucratie... Formulieren in zoveelvoud voor een telefooncontract, een vergeefs bezoek aan het belastingkantoor (maar een uurtje tijden) voor een formulier om de motor en auto te importeren... want 'un rendez-vous est nécessaire pour cela': eerst een telefonische afspraak maken met een mevrouw die vertelt wat je allemaal moet meenemen (hadden we al bij ons natuurlijk).
 
 ***
@@ -33,4 +31,6 @@ And it's really great for biking: small mountain roads, curves, beautiful sights
 
 In the meantime we've done some more work: insulation, cleaning up the stable, unpacking boxes.
 
-Also we experienced notorious French bureaucracy. Paying a visit to the tax office which is about an hour driving to get a form for importing the motorbike and car... and being told that 'un rendez-vous est nécessaire pour cela'. 
+![](/images/IMG_0561.jpeg)
+
+Also we experienced notorious French bureaucracy. Paying a visit to the tax office which is about an hour driving to get a form for importing the motorbike and car... and being told that 'un rendez-vous est nécessaire pour cela'.
