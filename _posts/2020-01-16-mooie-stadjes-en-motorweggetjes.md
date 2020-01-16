@@ -9,7 +9,7 @@ excerpt: ''
 hide_header: false
 
 ---
-(Englih below)
+(English below)
 
 Wat is de Haute Loire ('ons' deel van de Auvergne mooi!   
 Le Puy-en-Velay is een prachtig stadje, La Chaise Dieu een groot dorp met een enorme abdijkerk vlak bij.
