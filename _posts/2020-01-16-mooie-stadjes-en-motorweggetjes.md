@@ -2,7 +2,7 @@
 layout: post
 title: Mooie stadjes en motorweggetjes
 subtitle: ''
-date: 2020-01-13 00:00:00 +0100
+date: 2020-01-16 00:00:00 +0100
 thumb_img_path: "/images/IMG_0549.jpeg"
 content_img_path: "/images/IMG_0557.jpeg"
 excerpt: ''
@@ -11,14 +11,16 @@ hide_header: false
 ---
 (Englih below)
 
-Wat is de Haute Loire ('ons' deel van de Auvergne mooi! Le Puy-en-Velay is een prachtig stadje, La Chaise Dieu een groot dorp met een enorme abdijkerk vlak bij.
+Wat is de Haute Loire ('ons' deel van de Auvergne mooi!   
+Le Puy-en-Velay is een prachtig stadje, La Chaise Dieu een groot dorp met een enorme abdijkerk vlak bij.
 
 ![](/images/IMG_0578.jpeg)
 
 Onderweg naar Brioude vinden we de oplossing van een dorp zonder bakker...  
+  
 ![](/images/IMG_0595.jpeg)
 
-En wat een prachtige kronkel-bergweggetjes, perfect voor de motor! En bijna geen verkeer.
+En wat een prachtige kronkel-bergweggetjes, perfect voor de motor! Bijna geen verkeer.
 
 ![](/images/IMG_0557.jpeg)
 
