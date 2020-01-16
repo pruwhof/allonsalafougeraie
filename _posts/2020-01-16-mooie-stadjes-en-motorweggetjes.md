@@ -11,8 +11,8 @@ hide_header: false
 ---
 (English below)
 
-Wat is de Haute Loire ('ons' deel van de Auvergne mooi!   
-Le Puy-en-Velay is een prachtig stadje, La Chaise Dieu een groot dorp met een enorme abdijkerk vlak bij.
+Wat is de Haute Loire, 'ons' deel van de Auvergne mooi!   
+Le Puy-en-Velay is een prachtig stadje, La Chaise Dieu een groot dorp vlakbij met een enorme abdijkerk.
 
 ![](/images/IMG_0578.jpeg)
 
@@ -20,7 +20,7 @@ Onderweg naar Brioude vinden we de oplossing van een dorp zonder bakker...
   
 ![](/images/IMG_0595.jpeg)
 
-En wat een prachtige kronkel-bergweggetjes, perfect voor de motor! Bijna geen verkeer.
+Wat een prachtige kronkel-bergweggetjes, perfect voor de motor! Bijna geen verkeer.
 
 ![](/images/IMG_0557.jpeg)
 
