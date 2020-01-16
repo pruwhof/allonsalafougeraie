@@ -15,17 +15,20 @@ Wat is de Haute Loire ('ons' deel van de Auvergne mooi! Le Puy-en-Velay is een p
 
 ![](/images/IMG_0578.jpeg)
 
+Onderweg naar Brioude vinden we de oplossing van een dorp zonder bakker...  
+![](/images/IMG_0595.jpeg)
+
 En wat een prachtige kronkel-bergweggetjes, perfect voor de motor! En bijna geen verkeer.
 
 ![](/images/IMG_0557.jpeg)
 
 De klussen gaan ook door. De stal verder opgeruimd en een beetje ingericht. En het eerste stukje isolatie aangebracht.
 
-En dan de Franse bureaucratie... Formulieren in zoveelvoud voor een telefooncontract, een vergeefs bezoek aan het belastingkantoor (maar een uurtje tijden) voor een formulier om de motor en auto te importeren... want 'un rendez-vous est nécessaire pour cela': eerst een telefonische afspraak maken met een mevrouw die vertelt wat je allemaal moet meenemen (hadden we al bij ons natuurlijk).
+En dan de Franse bureaucratie... Formulieren in zoveelvoud voor een telefooncontract, een vergeefs bezoek aan het belastingkantoor (maar een uurtje tijden) voor een formulier om de motor en auto te importeren... want 'un rendez-vous est nécessaire pour cela': eerst een telefonische afspraak maken met een mevrouw die vertelt wat je allemaal moet meenemen (hadden we al bij ons natuurlijk). Maar uiteindelijk was de belastingdame zeer behulpzaam!
 
 ***
 
-The Haute Loire is so beautiful. Cute little towns like La Chaise Dieu (just around the corner) and Le Puy-en-Velay, the departmental capital.
+The Haute Loire is so beautiful. Cute little towns like La Chaise Dieu (just around the corner) and Le Puy-en-Velay, the departmental capital. 
 
 And it's really great for biking: small mountain roads, curves, beautiful sights. And almost no traffic!
 
@@ -33,4 +36,4 @@ In the meantime we've done some more work: insulation, cleaning up the stable, u
 
 ![](/images/IMG_0561.jpeg)
 
-Also we experienced notorious French bureaucracy. Paying a visit to the tax office which is about an hour driving to get a form for importing the motorbike and car... and being told that 'un rendez-vous est nécessaire pour cela'.
+Also we experienced notorious French bureaucracy. Paying a visit to the tax office which is about an hour driving to get a form for importing the motorbike and car... and being told that 'un rendez-vous est nécessaire pour cela'. After all the tax lady has been very helpful getting all forms done :-)
