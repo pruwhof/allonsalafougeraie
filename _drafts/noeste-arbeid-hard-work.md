@@ -25,7 +25,7 @@ De eerste boekingen komen binnen voor de huur van onze kamers, gite en workshops
 
 We hebben net alle boekingssites opnieuw ingesteld waarbij we menige uurtjes hebben geworsteld met de onmogelijkheden om je informatie kwijt te kunnen op de boekingssites van onder andere Booking, Airbnb, Expedia, VVV, Chambre d'hotes wijzer; boeken via onze site is goedkoper voor iedereen zou ik willen zeggen…
 
-De komende tijd ligt de zaal helemaal vol met houten balken, vloer/plafonddelen, zaagsel en stukken steen en een groot deel van onze inboedel die nog in dozen zit.
+De komende tijd ligt de zaal helemaal vol met houten balken, vloer/plafonddelen, zaagsel en stukken steen, een piano en een groot deel van onze inboedel die nog in dozen zit.
 
 ![](/images/IMG_0637.jpeg)
 
@@ -43,4 +43,4 @@ And we got our first bookings for our workshops and our cottage!
 
 In the meantime we got 6 stères of firewood delivered and had a nice job stacking it.
 
-![](/images/IMG_0613.jpeg)Our hall will be filled with beams, flooring and ceiling wood and other building materials in the coming period... as well as our unpacked boxes waiting for the kitchen and rooms to be completed. 
+![](/images/IMG_0613.jpeg)Our hall will be filled with beams, flooring and ceiling wood and other building materials in the coming period... as well as our unpacked boxes waiting for the kitchen and rooms to be completed and the piano we had to move.
