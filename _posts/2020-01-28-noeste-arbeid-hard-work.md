@@ -11,7 +11,7 @@ hide_header: false
 ---
 (English below)
 
-Een dag kan hier in alle rust voorbij glijden, beetje wandelen, naar de markt of wat opruimen. Die tijd lijkt nu te veranderen. We hadden een tweede offerte aangevraagd bij een aannemer, maar die lijkt er geen haast mee te hebben. Na bijna zes weken nog steeds niets. Het is een Fransman, dus je probeert rekening te houden met de feestdagen, andere bezigheden van de aannemer. Misschien is er iets tussengekomen. Na twee keer een antwoord; ‘eind volgende week is ie klaar’ hebben we de eerste aannemer gevraagd om te beginnen.
+![](/images/IMG_0638.jpeg)Een dag kan hier in alle rust voorbij glijden, beetje wandelen, naar de markt of wat opruimen. Die tijd lijkt nu te veranderen. We hadden een tweede offerte aangevraagd bij een aannemer, maar die lijkt er geen haast mee te hebben. Na bijna zes weken nog steeds niets. Het is een Fransman, dus je probeert rekening te houden met de feestdagen, andere bezigheden van de aannemer. Misschien is er iets tussengekomen. Na twee keer een antwoord; ‘eind volgende week is ie klaar’ hebben we de eerste aannemer gevraagd om te beginnen.
 
 Nu wordt het deel waar onze slaapkamer, opslagkamer en beneden de grote keuken met kantoortje gemaakt.
 
