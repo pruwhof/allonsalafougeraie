@@ -2,7 +2,7 @@
 layout: post
 title: Bouwen en jarig zijn / building and birthdays
 subtitle: ''
-date: 2020-02-20 00:00:00 +0100
+date: 2020-02-20 01:00:00 +0100
 thumb_img_path: "/images/IMG_0690.jpeg"
 content_img_path: "/images/IMG_0706.jpeg"
 excerpt: ''
