@@ -9,7 +9,7 @@ excerpt: ''
 hide_header: false
 
 ---
-Slopen en bouwen, daar draait het een beetje om nu. Twee enorme gaten in het huis hebben nu nieuwe ramen met een betonrand. 
+Slopen en bouwen, daar draait het een beetje om nu. Twee enorme gaten in het huis hebben nu nieuwe ramen met een betonrand.
 
 ![](/images/IMG_0690.jpeg)
 
@@ -27,6 +27,12 @@ Afwerking van de grote tussenwand doen we zelf. Boven de OSB plaat komt een latt
 ![](/images/IMG_0704.jpeg)
 
 Ook in de bijkeuken (voormalige keukenruimte) schiet het op. Een tussenmuur gemaakt, elektra vernieuwd, de kasten voor de voorraden potten pannen en servies zijn in wording.
+
+Intussen waren we allebei jarig. Gevierd met een Frans dejeuner!
+
+![](/images/IMG_0647.jpeg)
+
+Op sommige dagen is het al warm genoeg om buiten te lunchen trouwens :-)
 
 ***
 
