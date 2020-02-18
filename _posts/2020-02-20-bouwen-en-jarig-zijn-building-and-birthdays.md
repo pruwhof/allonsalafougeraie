@@ -9,12 +9,14 @@ excerpt: ''
 hide_header: false
 
 ---
+(English below)
+
 Slopen en bouwen, daar draait het een beetje om nu. Twee enorme gaten in het huis hebben nu nieuwe ramen met een betonrand.
 
 ![](/images/IMG_0690.jpeg)
 
 Het gat werd zo groot omdat onderin een oud boograam zat. Dat is nu opgevuld met stenen die uit de muur zijn gekomen. Wel meerwerk bij de aannemer...  
-Het dak in dit gedeelte is al geisoleerd en afgetimmerd.. maar in de rest van de grote zaal moet het nog.
+Het dak in dit gedeelte is al geisoleerd en afgetimmerd.. maar in de rest van de grote zaal moet dat nog.
 
 ![](/images/IMG_0702.jpeg)
 
