@@ -4,7 +4,7 @@ title: Het gaat hard nu/ a lot of progress
 subtitle: ''
 date: 2020-03-08 00:00:00 +0100
 thumb_img_path: "/images/IMG_0745.jpeg"
-content_img_path: ''
+content_img_path: "/images/IMG_0762-2.jpeg"
 excerpt: ''
 hide_header: false
 
@@ -35,7 +35,7 @@ The roof of our big hall has been finished. Fully insulated and new wood cover. 
 
 On the first floor we're making our new bedroom. A door has been created to connect it to the living room. The walls are alomost ready, all insulated. This room has a new window.
 
-![](/images/IMG_0762-1.jpeg)
+![](/images/IMG_0761.jpeg)
 
 We do have some more walls to finish. 50 new plasterboards will be delivered for the kitchen and the storage. All outside walls in this area will be insulated.
 
