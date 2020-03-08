@@ -9,6 +9,8 @@ excerpt: ''
 hide_header: false
 
 ---
+(English below)
+
 Het dak van de grote zaal is klaar! Geisoleerd en afgetimmerd. Ook de nieuwe wand is klaar, er komt nog een trap naar de deur op de verdieping. Tegen de wand gaan we een grote kast maken.
 
 ![](/images/IMG_0745-1.jpeg)
@@ -21,10 +23,16 @@ Op de verdieping komt onze nieuwe slaapkamer. We hebben een doorgang naar de woo
 
 Ook hebben we twee nieuwe ramen, in de keuken en in de slaapkamer.
 
-We hebben nog 50 gipsplaten te gaan in de keuken, de opslagruimte en de bijkeuken. Bij de buitenmuren in deze ruimten komen voorzetwanden met isolatie. 
+We hebben nog 50 gipsplaten te gaan in de keuken, de opslagruimte en de bijkeuken. Bij de buitenmuren in deze ruimten komen voorzetwanden met isolatie.
 
 Ook de elektra wordt vernieuwd en uitgebreid, zodat we ovens, vaatwasser en wasmachine goed kunnen aansluiten. We passen alles meteen aan naan de nieuwe Franse normen met gescheiden groepen voor verlichting en stopcontacten. De losse kabels gaan nog vervangen worden!
 
 ![](/images/IMG_0765.jpeg)
 
 ***
+
+The roof of our big hall has been finished. Fully insulated and new wood cover. The new wall is ready as well. A staircase will be insalled at the door on the first floor. We'll make a large cupboard at this wall.
+
+On the first floor we're making our new bedroom. A door has been created to connect it to the living room. The walls are alomost ready, all insulated. This room has a new window.
+
+![](/images/IMG_0762-1.jpeg)
