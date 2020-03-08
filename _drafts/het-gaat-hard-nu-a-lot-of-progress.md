@@ -36,3 +36,7 @@ The roof of our big hall has been finished. Fully insulated and new wood cover. 
 On the first floor we're making our new bedroom. A door has been created to connect it to the living room. The walls are alomost ready, all insulated. This room has a new window.
 
 ![](/images/IMG_0762-1.jpeg)
+
+We do have some more walls to finish. 50 new plasterboards will be delivered for the kitchen and the storage. All outside walls in this area will be insulated.
+
+We're also renewing and adding to the electric wiring, to get it all prepared for oven, dishwasher, etc. Also we're adapting it to the new French standards, separating lightning and sockets.
