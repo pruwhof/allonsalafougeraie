@@ -35,9 +35,13 @@ We hebben vrijdag nog flink wat boodschappen gedaan. De parkeerplaats van de sup
 
 Maandagavond gaf Macron aan dat Frankrijk in oorlog is met het virus. Dat iedereen vanaf dinsdag 12.00 uur niet meer de straat op mag zonder een papiertje. Je mag niet meer onnodig de weg op en zeker geen familie en vrienden bezoeken. Iedereen heeft huisarrest voor zeker 15 dagen!
 
+![](/images/IMG_0801.jpeg)
+
 Wat een mazzel dat we zoveel grond hebben en een groot huis, ver van de dichtbevolkte wereld… De ernst begint steeds duidelijker te worden. We mogen geen andere mensen bezoeken, er op uit gaan is absoluut verboden. Ook zijn de eerste annuleringen al binnen, hard aan het werk gaan om eind april de deuren te openen lijkt nu zinloos, bouwmaterialen kunnen we niet meer kopen.
 
-![](/images/IMG_0762 (1).jpeg)Gelukkig hadden we nog 50 gipsplaten laten komen en eerder al heel veel isolatiemateriaal. De afgelopen week waren we bezig met het afwerken van de muren, het maken van een kruidentuintje, het verhuizen van onze spullen uit de gite.
+![](/images/IMG_0805.jpeg)
+
+Gelukkig hadden we nog 50 gipsplaten laten komen en eerder al heel veel isolatiemateriaal. De afgelopen week waren we bezig met het afwerken van de muren, het maken van een kruidentuintje, het verhuizen van onze spullen uit de gite.
 
 ![](/images/27884762-3d13-43ac-acda-3246c2ea45d5-1.jpeg)
 
