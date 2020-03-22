@@ -41,8 +41,6 @@ Wat een mazzel dat we zoveel grond hebben en een groot huis, ver van de dichtbev
 
 ![](/images/27884762-3d13-43ac-acda-3246c2ea45d5-1.jpeg)
 
-![](/images/IMG_0788-1.jpeg)
-
 Van een van de bestaande ramen was de onderbalk totaal verrot. Die moest dus vervangen worden voor de keukenmuur kon worden afgewerkt.
 
 ![](/images/IMG_0795.jpeg)
