@@ -1,8 +1,8 @@
 ---
 layout: post
-title: Het is stil...
+title: Het is stil... / It's being quiet....
 subtitle: Ons leven tijdens de confinement
-date: 2020-05-10 00:00:00 +0200
+date: 2020-05-11 00:00:00 +0200
 thumb_img_path: "/images/8EB138B3-878D-4D5B-A3F2-9053523E2EA6.jpeg"
 content_img_path: "/images/IMG_0846.jpeg"
 excerpt: ''
